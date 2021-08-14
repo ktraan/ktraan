@@ -8,8 +8,8 @@
 
 #### - 📧 How to reach me: kevintraan@live.com || 780-233-2065
 
-#### - 🧐 Fun fact: 👁 💚 🐢
-
+#### - 🧐 Fun fact: 👁  ▶ 🎹
+ 
 ---
 
 ### These are the technologies I've used and worked with:
