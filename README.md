@@ -4,7 +4,7 @@
 
 ### Currently at TELUS && 29feet
 
-#### - 📧 How to reach me: kevintraan@live.com || 780-233-2065
+#### - 📧 You can reach me at kevintraan@live.com
 
 ---
 
